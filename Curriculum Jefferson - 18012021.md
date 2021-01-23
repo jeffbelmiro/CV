@@ -2,7 +2,7 @@
 
 Brasileiro, 34 anos - :telephone_receiver:  [+55 (11) 98572 3150](callto:+5511985723150) - :e-mail: [jeffbelmiro@gmail.com](mailto:jeffbelmiro@gmail.com)
 
-:link:LinkedIn: [jeffbelmiro](url:https://www.linkedin.com/in/jeffbelmiro/)
+:link:LinkedIn: linkedin.com/in/jeffbelmiro
 
 ##### FORMAÇÃO
 
